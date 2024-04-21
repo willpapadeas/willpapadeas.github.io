@@ -10,7 +10,7 @@ Looking to the future, I am keen to continue to grow and advance my career after
 
 ### Education
 
-Graduate Certificate in Business Analytics, University of Wollongong, 2020
+Graduate Certificate in Business Analytics, University of Wollongong, 2020  
 Bachelor of Commerce, Accounting and Finance, University of Wollongong, 2006
 
 ### Professional Development
