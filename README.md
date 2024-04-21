@@ -17,13 +17,13 @@ Bachelor of Commerce, Accounting and Finance, University of Wollongong, 2006
 
 #### CPA Australia Micro Credentials
 
-Future of Money, 2021
+Future of Money, 2021  
 The Digital Finance Ecosystem, 2021
 
 
 ### Professional Memberships
 
-Certified Practising Accountant, CPA Australia, 2011
+Certified Practising Accountant, CPA Australia, 2011  
 Golden Key Life Member, Golden Key International Honour Society, 2003
 
 ### Work Experience
